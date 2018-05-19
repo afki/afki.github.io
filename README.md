@@ -1,1 +1,1 @@
-# afki.github.io.
+# afki.github.io
